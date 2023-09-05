@@ -1,0 +1,1 @@
+This code belongs to Pengadilan Negeri Stabat Kelas I B
